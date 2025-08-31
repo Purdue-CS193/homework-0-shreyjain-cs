@@ -2,8 +2,8 @@
 
 ## Things I Like About CS:193
 
-- My lecturer is Thiru and he's pretty cool
-- A fairly easy, fun and useful class
+- My lecturer is pretty cool and chill
+- It's a fairly easy, fun and useful class
   
 
 
