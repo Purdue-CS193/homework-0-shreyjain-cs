@@ -4,7 +4,7 @@
 
 - My lecturer is pretty cool and chill
 - It's a fairly easy, fun and useful class
-  
+- There are NO EXAMS!! 
 
 
 
